@@ -6,4 +6,4 @@
 
 [Acesse meu LinkedIn](https://www.linkedin.com/in/lucas-morenno/)
 
-Vamos nos conectar? 
+**Vamos nos conectar? 
